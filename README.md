@@ -1,0 +1,1 @@
+# ICTPRG431-Query-2-More-Operators-Tasks
